@@ -10,3 +10,10 @@ I am sad now, I think I'm hurting myself,
 But tomorrow I'll change, and read something from that shelf.
 I notice it's titled, "Why the World is a Sham,"
 I make a mental note, to read it all, tomorrow at 8:45 a.m.
+
+Let her be crazy, let her be mad,
+Until her inner tune burns her to ash.
+She'll know it's still all within her;
+She must be willing to step into the world,
+Leaving behind those moments confined.
+She must be there at quarter to nine
