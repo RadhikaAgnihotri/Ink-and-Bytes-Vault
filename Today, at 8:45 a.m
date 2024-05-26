@@ -17,3 +17,8 @@ She'll know it's still all within her;
 She must be willing to step into the world,
 Leaving behind those moments confined.
 She must be there at quarter to nine
+
+Think of it as a stepping stone,
+From a place of low, to one that's your true home.
+Your true self was always calm and composed.
+Just take that leap when the clock hits 8:45 stroke.
